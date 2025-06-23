@@ -38,8 +38,4 @@ This project is for educational and ethical purposes only. Misuse is illegal and
 
 🎓 Training
 -----------
-Want to level up your skills?
-Explore the Evilginx Training Course:
-https://shop.fluxxset.com/product/evilginx-training-course/
-
-[Course Banner Placeholder - Evilginx_course.png]
+Telegram @profmorale
